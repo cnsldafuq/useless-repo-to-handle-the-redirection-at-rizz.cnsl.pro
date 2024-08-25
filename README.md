@@ -1,0 +1,1 @@
+# useless-repo-to-handle-the-redirection-at-rizz.cnsl.pro
